@@ -3,25 +3,26 @@ layout: post
 title: Heels
 ---
 
-![heels for blog](https://i.pinimg.com/736x/cb/8b/6f/cb8b6f0c38fea3fafe84451612ee3a26.jpg)
-
-## Heels that are in style
+## Heels that are in style!!
 
 There are many new heel styles trending right now that you should know off. In my opinion I think heels look good with any outfit.
 
 ## Sparkely heels 
+![heels for blog](https://i.pinimg.com/736x/cb/8b/6f/cb8b6f0c38fea3fafe84451612ee3a26.jpg)
 
 Sparkely heels are trending right like these clear band lace up, thick sparkely heels. 
 You can read more [here](https://www.aliexpress.com/store/product/NAUSK-2018-Fashion-Women-Sandals-2018-Open-Toe-High-Heels-Shoes-Woman-Clear-Transparent-Summer-Ankle/136994_32867466903.html?spm=a2g1y.12024536.productList_11450875.subject_5)
 
 ## Plain Black heels 
 
-Plain black heels go with anything. You know the saying black goes with anything!
+Plain simple black heels goes with anything. You know what they say "black goes with anything!!"
 ![heels for blog](https://www.fsjshoes.com/media/catalog/product/cache/1/image/600x600/602f0fa2c1f0d1ba5e241f914e856ff9/n/j/nj080334.jpg)
 ![heels forblog](https://i.pinimg.com/originals/b1/ad/2f/b1ad2f3ab846e43274eb965728ae903f.jpg)
 
 ## Black looks good
 ![heels for blog](https://www.justthedesign.com/wp-content/uploads/2015/04/All-Black-Outfit-30.jpg)
+![heels for blog](http://outfitideashq.com/wp-content/uploads/2017/01/black-pumps-women-outfit-idea-style-fashion-1.jpg)
+
 
 
 ## Open toe heels
