@@ -23,6 +23,8 @@ Plain black heels go with anything. You know the saying black goes with anything
 ## Open toe heels
 
 Open toe heels goes great with anything , such as dresses, jeans, joggers and skirts. Open toe heels come in diffrent styles such as boots, lace up, ect.
+
+
 ![heels for blog](http://picture-cdn.wheretoget.it/rschyk-l-610x610-blake+lively+dress-blake+lively-gossip+girl-black+heels-outfit-floppy+hat-peep+toe+boots-hat-dress.jpg)
 ![heels for blog](http://glamradar.com/wp-content/uploads/2016/11/1.-black-sweater-with-skirt-and-peep-toe-boots.jpg)
 ![heels for blog](http://picture-cdn.wheretoget.it/a805bl-l.jpg)
