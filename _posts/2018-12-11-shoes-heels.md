@@ -16,7 +16,8 @@ You can read more [here](https://www.aliexpress.com/store/product/NAUSK-2018-Fas
 
 ## Plain Black heels 
 
-Plain simple black heels goes with anything. You know what they say "black goes with anything!!"
+Plain simple black heels goes with anything. You know what they say "black goes with anything"
+
 
 ![heels for blog](https://www.fsjshoes.com/media/catalog/product/cache/1/image/600x600/602f0fa2c1f0d1ba5e241f914e856ff9/n/j/nj080334.jpg)
 
