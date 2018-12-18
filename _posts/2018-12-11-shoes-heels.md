@@ -3,6 +3,8 @@ layout: post
 title: Heels
 ---
 
+![heels](/images/heels.jpg)
+
 ## Heels that are in style!!
 
 There are many new heel styles trending right now that you should know off. In my opinion I think heels look good with any outfit.
